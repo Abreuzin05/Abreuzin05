@@ -1,5 +1,6 @@
 # 💫 About Me:
-🔭Curso Gestão de TI;<br>🤝Esperando uma oportunidade para tomar uma decisão na área de TI;<br>⚡Busco evolução, aprendizado;
+🔭eu sou o joao vitor, tenho 18 anos, faço gestao de TI na unisul, e sobre mim, eu sou uma pessoa que gosta de lidar com outras pessoas, sou uma pessoa muito alegre, sorridente, gosto de fazer tudo com agilidez e eficiencia, sou uma pessoa que aprende rapido, gosto de trabalho em equipe, as pessoas que eu convivo gostam muito da minha presença pois sou muito extrovertido. 
+;<br>🤝Esperando uma oportunidade para tomar uma decisão na área de TI;<br>⚡Busco evolução, aprendizado;
 
 
 ## 🌐 Socials:
