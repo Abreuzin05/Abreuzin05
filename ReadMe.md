@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭Hello world! Me chamo joao vitor, ;<br>
+🔭Hello world! Me chamo João Vitor, ;<br>
 🤝Esperando uma oportunidade para tomar uma decisão na área de TI;<br>⚡Busco evolução, aprendizado;
 
 
